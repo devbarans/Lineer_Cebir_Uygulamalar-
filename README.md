@@ -1,0 +1,1 @@
+# Lineer_Cebir_Uygulamalar-
